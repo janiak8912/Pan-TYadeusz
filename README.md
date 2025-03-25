@@ -1,1 +1,1 @@
-# Pan-TYadeusz
+# Pan-Tadeusz
